@@ -1,8 +1,10 @@
 <img width="600" height="398" alt="Untitled253_20251028193741" src="https://github.com/user-attachments/assets/c0c21ca4-0f98-47cc-9c62-cd97fe201540" />
 
-ㅤㅤw2i if offtabㅤㅤc+h freely !
+ㅤ།🩹ㅤㅤ c+hㅤㅤ ENG/BIS
 
-ㅤships OK!! infact, please do int! c:
+ㅤ，⠀  ꪻ   ships OK !
+
+ㅤㅤㅤㅤㅤㅤ^ infact, please int ..(‾◡◝)
 
 ***
 ㅤ
