@@ -1,9 +1,18 @@
-jello !!! im synth / spade, nns OK!
+![](https://file.garden/aHtB5IQkmSiiNmZ8/Untitled253_20251028193741.png)
 
-INFP-T c+h, i suggest w2i cause i'm usually AFK
+ㅤㅤw2i if offtabㅤㅤc+h freely !
 
-he / any enby meowwo 
+ㅤships OK!! infact, please do int! :)
 
-ill make this look better soon i swear, i just dk how to work github yet
+***
+ㅤ
+ㅤ
+ㅤ𐔌ㅤㅤ**currentㅤfixation/s**ㅤ:
 
-im really friendly i swear,,,, im just very shy
+roblox args ㅤbadthingsㅤ blocktales
+
+ㅤㅤforsakenㅤ tpcㅤ alnstㅤ tlg
+
+. . . literally just roblox
+
+[more info about mee here !!](https://rentry.co/777reprise)
