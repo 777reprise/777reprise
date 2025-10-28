@@ -1,10 +1,11 @@
 <img width="600" height="398" alt="Untitled253_20251028193741" src="https://github.com/user-attachments/assets/c0c21ca4-0f98-47cc-9c62-cd97fe201540" />
 
-ㅤ།🩹ㅤㅤ c+hㅤㅤ ENG/BIS
+ㅤ།🩹ㅤㅤ c+hㅤ ㅤ ENG/BIS
 
-ㅤ，⠀  ꪻ   ships OK !
+ㅤ，⠀  ꪻ   ships OK ! w2i
 
 ㅤㅤㅤㅤㅤㅤ^ infact, please int ..(‾◡◝)
+ㅤㅤㅤㅤㅤㅤw2i cause im usually afk,,
 
 ***
 ㅤ
