@@ -21,6 +21,17 @@
 
 ㅤthe latter , SORRY!
 
+ㅤ^ although, even if you w2i, i'll
+
+ㅤprobably not see it cause of my god
+
+ㅤhorrible eyesight and ill probably
+
+ㅤonly realize it once it's already
+
+ㅤtoo late and either you've left or
+
+ㅤi've disconnected. SORRY AGAIN!!!
 ㅤ
 
 ㅤi'm a very timid and shy person when
@@ -33,6 +44,9 @@
 
 ㅤits ok! i'd love to meet new people!
 
+ㅤBUT...thats unless im afk. i will
+
+ㅤprobably forget im ingame .
 
 ***
 ㅤ
@@ -41,7 +55,7 @@
 
 roblox args ㅤbadthingsㅤ blocktales
 
-ㅤㅤforsakenㅤ tpcㅤ alnstㅤ p!
+ㅤㅤforsakenㅤ mm2012ㅤ alnstㅤ p!
 
 *. . . literally just roblox*
 
