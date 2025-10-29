@@ -8,6 +8,19 @@
 
 ㅤㅤㅤㅤㅤㅤw2i cause im usually afk,,
 
+
+ㅤ
+
+ㅤi forget im ingame, ALOT. so please
+
+ㅤw2i! sorry if i disappear btw its
+
+ㅤeither wifi or i forgot im in game
+
+ㅤfor a long time already . usually
+
+ㅤthe latter , SORRY!
+
 ***
 ㅤ
 ㅤ
