@@ -40,7 +40,7 @@
 
 ㅤget energetic really quick !! aslong
 
-ㅤas you match my energy .. go say hi
+ㅤas you tolerate my energy, go say hi
 
 ㅤits ok! i'd love to meet new people!
 
